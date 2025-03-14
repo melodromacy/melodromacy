@@ -1,4 +1,4 @@
-https://ibb.co/RPCdXHQ <- Do you recognize this art style? (Hate art from twitter - TW: Lobotomy)<br>
-https://ibb.co/DLph7Yx <- Do you recognize this art style? (Hate art from strawpage - TW: Lobotomy)
+https://ibb.co/RPCdXHQ <- Do you recognize this art style? (Hate art from twitter - TW: Lobotomy, r-slur)<br>
 
-anybody know a Soddy-Daisy Tennessee? On Safari 18.1 on a Mac OS X desktop computer?
+https://ibb.co/DLph7Yx <- Do you recognize this art style? (Hate art from strawpage - TW: Lobotomy)
+UPDATE: FOUND! TIMELY-JIMANYA / FEMCEL-JIMMY
