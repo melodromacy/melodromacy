@@ -1,4 +1,3 @@
-https://ibb.co/RPCdXHQ <- Do you recognize this art style? (Hate art from twitter - TW: Lobotomy, r-slur)<br>
+https://ibb.co/RPCdXHQ <- Found you, Frankie.<br>
 
-https://ibb.co/DLph7Yx <- Do you recognize this art style? (Hate art from strawpage - TW: Lobotomy)
-UPDATE: FOUND! TIMELY-JIMANYA / FEMCEL-JIMMY
+https://ibb.co/DLph7Yx <- UPDATE: FOUND! TIMELY-JIMANYA / FEMCEL-JIMMY / freakwashing was responsible for this.
